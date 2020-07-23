@@ -1,1 +1,0 @@
-# sehat.github.id
